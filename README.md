@@ -1,0 +1,2 @@
+# HWIDIDIDIDIDIDID
+дегенеративная система
